@@ -3,6 +3,6 @@
 🌱 Also working on Web3 with Solidity  
 💞️ Looking for new opportunities around Paris or full-remote  
 🖊️ Contact me :  
-📫 Lattana-s@hotmail.fr  
+📫 Naxdev75@gmail.com  
 🎮 Nax | Suiswap#7756 (On discord)  
 📖 https://www.linkedin.com/in/lattana-soucksengphet/  
