@@ -5,4 +5,3 @@
 🖊️ Contact me :  
 📫 Naxdev75@gmail.com  
 🎮 Nax | Suiswap#7756 (On discord)  
-📖 https://www.linkedin.com/in/lattana-soucksengphet/  
