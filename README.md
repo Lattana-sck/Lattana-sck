@@ -4,4 +4,4 @@
 💞️ Looking for new opportunities around Paris or full-remote  
 🖊️ Contact me :  
 📫 Naxdev75@gmail.com  
-🎮 Nax | Suiswap#7756 (On discord)  
+🎮 naxzerrr (On discord)  
